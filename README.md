@@ -2,6 +2,6 @@
 - 👀 I’m interested in in web programming and other things 
 - 🌱 I’m currently learning 4th ESO and several programming languages ​​independently
 - 💞️ I’m looking to collaborate on Innovative projects in gaming servers and hosting
-- 📫 How to reach me datebloxi@proton.me / Didcord : datebloxi
+- 📫 How to reach me datebloxi@proton.me / Discord : datebloxi
 - 😄 Pronouns: HE / HIM
 - ⚡ Fun fact: I love cats 🐈
